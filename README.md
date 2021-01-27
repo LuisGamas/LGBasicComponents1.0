@@ -11,7 +11,7 @@ Custom Panel Image
 Label Custom Image
 
 
-Donations for coffee... https://www.paypal.com/donate?hosted_button_id=5EZJ86XQPFAJ8&source=url
+Donations for coffee... https://kutt.it/InvitameUnCafe
 
 enjoy!.
 
